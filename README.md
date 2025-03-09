@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about programming languages
 - 📫 How to reach me: crisbel1803
 - 😄 Pronouns: she
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: idk
 
